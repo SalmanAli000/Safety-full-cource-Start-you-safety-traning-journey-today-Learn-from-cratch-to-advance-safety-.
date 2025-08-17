@@ -1,0 +1,4 @@
+User-agent: *
+Allow: /
+
+Sitemap: https://salmanali000.github.io/Safety-full-cource-Start-you-safety-traning-journey-today-Learn-from-cratch-to-advance-safety-./sitemap.xml
