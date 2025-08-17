@@ -1,0 +1,2 @@
+# Safety-full-cource-Start-you-safety-traning-journey-today-Learn-from-cratch-to-advance-safety-.
+Start your safety training journey with our comprehensive course, featuring over 30 chapters that cover everything from basic safety principles to advanced practices. Perfect for beginners, our easy-to-understand content is practical and applicable. Complete the course to gain essential skills and boost your confidence as a safety professional.
